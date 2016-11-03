@@ -7,6 +7,6 @@ DURGESH AWASTHI
 Layasri
 Swathi
 Arzoo Gupta
-Paurvi Bhardwaj
+PAURVI Bhardwaj
 Abhilasha Swami
 Vaibhaw Singh
