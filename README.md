@@ -2,4 +2,4 @@
 Somnath Pathak
 Gajendra Singh
 preethi
-DUrgesh Awasthi
+Durgesh Awasthi
