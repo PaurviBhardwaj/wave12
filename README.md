@@ -3,7 +3,7 @@ Somnath Pathak
 Gajendra Singh
 preethi
 Angelin
-Durgesh Awasthi
+DURGESH AWASTHI
 Layasri
 Swathi
 Arzoo Gupta
