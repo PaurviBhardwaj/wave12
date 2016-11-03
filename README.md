@@ -9,3 +9,4 @@ Swathi
 Arzoo Gupta
 Paurvi Bhardwaj
 Abhilasha Swami
+Vaibhaw Singh
